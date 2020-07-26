@@ -1,0 +1,1 @@
+1/2 cup shortening1 1/2 cups white sugar2 eggs2 tablespoons cocoa4 tablespoons red food coloring1 teaspoon salt1 teaspoon vanilla extract1 cup buttermilk2 1/2 cups sifted all-purpose flour1 1/2 teaspoons baking soda1 tablespoon distilled white vinegarIcing:5 tablespoons all-purpose flour1 cup milk1 cup white sugar1 cup butter, room temperature1 teaspoon vanilla extract
